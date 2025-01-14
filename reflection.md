@@ -1,0 +1,1 @@
+This project was brand new for me because I had never done something like this before and it was truly an experience and good learning oppurtunity because of how I was able to have good conversations with ChatGPT in order to further this project along.
